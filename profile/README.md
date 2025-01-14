@@ -13,4 +13,4 @@ https://mintexplab.itch.io/eclipsenews
 https://mintexplab.itch.io/id
 
 
-As surpising as it might sound (especially in this day and age). We support 🏳️‍🌈🏳️‍🌈🏳️‍🌈 
+As surpising as it might sound (especially in this day and age). minty's experiment lab supports 🏳️‍🌈 cause we're not Meta (booooooo)
