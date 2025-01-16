@@ -13,7 +13,7 @@ https://mintexplab.itch.io/eclipsenews
 https://mintexplab.itch.io/id
 
 
-As surpising as it might sound (especially in this day and age). minty's experiment lab supports 🏳️‍🌈 cause I'm not as crazy as Mark Zuckerberg (booooooo 🤦)
+As surprising as it might sound (especially in this day and age). minty's experiment lab supports 🏳️‍🌈 cause I'm not as crazy as Mark Zuckerberg (booooooo 🤦)
 
 
 💚🤍💙
